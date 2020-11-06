@@ -1,1 +1,1 @@
-# Labb-6
+# Labb-6 - Soleiman Ibrahim/Cyneyt
